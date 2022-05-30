@@ -12,4 +12,4 @@ Ola turma espero aprender muito com essa grande
 Oportunidade de estudo,atualmente estou fazendo
 O curso superior em tecnologia em jogos digitais.
 Espero que posso contribuir com meus conhecimentos
-Adiqueridos.e aprender muito com vovês.
+Adiqueridos.e aprender muito com vocês.
